@@ -28,6 +28,7 @@ Pedi ao chat GPT que primeiro listasse algumas ideias de renda extra usando Ias 
 
 Um ebook com detalhes sobre cada atividade e como começar e por onde começar, com sugestões de plataformas e ferramentas pra ser usadas no processo.
 
+https://www.canva.com/design/DAGW8WBI8FY/vgOIL9EEl3EI7sVt_e2FQg/view?utm_content=DAGW8WBI8FY&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hb760c1b715
 
 
 ## 💭 Reflexão (Opcional)
